@@ -1,8 +1,7 @@
 # Event
 Medieus regular event
 
-[Membership registration event]
--Event End-
+[Airdrop event](https://medieus.com/campaign/part3/s1_default.asp "event in progress")
 
 [Airdrop event](https://medieus.com/mevent/ "event in progress")
 
@@ -11,3 +10,6 @@ Medieus regular event
 [Interest registration event](https://medieus.com/ "event in progress")
 
 [Participate in the campaign](https://medieus.com/ "event in progress")
+
+[Membership registration event]
+-Event End-
