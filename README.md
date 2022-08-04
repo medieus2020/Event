@@ -1,15 +1,15 @@
 # Event
 Medieus regular event
 
-[MEDIEUS & SOMESING DONATION EVENT](https://medieus.com/campaign/part3/s1_default.asp "event in progress")
-
-[Airdrop event](https://medieus.com/mevent/ "event in progress")
-
 [Medical open market launching event](https://medieus.com/product/checkup/checkup.asp/ "event in progress")
 
 [Interest registration event](https://medieus.com/ "event in progress")
 
-[Participate in the campaign](https://medieus.com/ "event in progress")
+[MEDIEUS & SOMESING DONATION EVENT] -Event End-
+
+[Airdrop event] -Event End-
+
+[Participate in the campaign] -Event End-
 
 [Membership registration event]
 -Event End-
