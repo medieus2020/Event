@@ -1,13 +1,18 @@
 # Event
 > Medieus regular event
 
-## [MEDIEUS (MDUS) to be Listed on DigiFinex! Come and Join the Events to Share $ 2,000 MDUS!](https://support.digifinex.com/hc/en-us/articles/16770394330905 "event in progress")
+## [MEDIEUS (MDUS) Let's retweet and reach 30,000 followers!](https://twitter.com/MEDIEUS1 "event in progress")
 
-## [Our family vaccination calendar](https://medieus.com/medi_diary/vd/vd_default.asp "event in progress")
 
-## [Medical open market launching event](https://medieus.com/product/checkup/checkup.asp "event in progress")
+[MDUS AirDrop #1 Come to MDUS Telegram!] -Event End-
 
-## [Interest registration event](https://medieus.com/ "event in progress")
+[MEDIEUS (MDUS) to be Listed on DigiFinex! Come and Join the Events to Share $ 2,000 MDUS!] -Event End-
+
+[Our family vaccination calendar] -Event End-
+
+[Medical open market launching event] -Event End-
+
+[Interest registration event] -Event End-
 
 [MEDIEUS & SOMESING DONATION EVENT] -Event End-
 
