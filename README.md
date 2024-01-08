@@ -1,8 +1,9 @@
 # Event
 > Medieus regular event
 
-## [MEDIEUS (MDUS) Let's retweet and reach 30,000 followers!](https://twitter.com/MEDIEUS1 "event in progress")
+## [MDUS AirDrop #3 GO! MDUS Telegram to invite my friends](t.me/medieusglobal "event in progress")
 
+[MDUS AirDrop #2 Let's retweet and reach 30,000 followers!] -Event End-
 
 [MDUS AirDrop #1 Come to MDUS Telegram!] -Event End-
 
