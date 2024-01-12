@@ -1,7 +1,9 @@
 # Event
 > Medieus regular event
 
-## [MDUS AirDrop #3 GO! MDUS Telegram to invite my friends](t.me/medieusglobal "event in progress")
+## [MDUS AirDrop #4 The more Telegram gathers, the more MDUS Airdrops explode](t.me/medieusglobal "event in progress")
+
+[MDUS AirDrop #3 GO! MDUS Telegram to invite my friends] -Event End-
 
 [MDUS AirDrop #2 Let's retweet and reach 30,000 followers!] -Event End-
 
