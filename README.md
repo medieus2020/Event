@@ -1,6 +1,8 @@
 # Event
 > Medieus regular event
 
+[Special invitation for Medius members, free accommodation for 10 people] -Event in progress-
+
 [MDUS AirDrop #4 The more Telegram gathers, the more MDUS Airdrops explode] -Event End-
 
 [MDUS AirDrop #3 GO! MDUS Telegram to invite my friends] -Event End-
