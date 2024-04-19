@@ -1,7 +1,9 @@
 # Event
 > Medieus regular event
 
-[MDUS Fam!  hold on Airdrop / Buy MDUS on Uniswap] -Event in progress-
+[ELYSIA  X MEDIEUS AirDrop] -Event in progress-
+
+[MDUS Fam!  hold on Airdrop / Buy MDUS on Uniswap] -Event End-
 
 [Special invitation for Medius members, free accommodation for 10 people] -Event End-
 
